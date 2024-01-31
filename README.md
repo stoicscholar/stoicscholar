@@ -1,1 +1,1 @@
-# stoicscholar-
+# stoicscholar
